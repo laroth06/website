@@ -104,7 +104,7 @@ The wise and foolish virgins - Matt. 25:1-13
 
 The sheep and the goats - Matt. 25:31-46
  
- ## Ritual Baptisms
+## Ritual Baptisms
 
 A baptism is called a ritual baptism, or a ceremonial baptism, when
 water is used as a symbol for something else. It is a representative
